@@ -1,0 +1,2 @@
+- Yo, I’m @ARMsoftware...I guess
+- I’m mainly interested in music, but I suppose there might be some variety in what I do on here
